@@ -2,7 +2,7 @@
 - 👀 I’m interested in coding, programming, network administration, troubleshooting
 - 🌱 I’m currently learning web development
 - 💞️ I’m looking to collaborate on itech community to showcase my skills.
-- 📫 How to reach me 0714532816 or email-kimx19musa@gmail.com
+- 📫 How to reach me 0714532816 or email    kimx19musa@gmail.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
